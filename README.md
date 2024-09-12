@@ -1,5 +1,5 @@
 # DOROBO-NARRATIVE
-# The-Dorobo-community
+# The-Dorobo-community 
 ## Introduction
 The Dorobo they can also be called *Ndorobo* or *Torobo*. They are one of the Maasai group found in `Kenya` and `Tanzania`. They leave in Maasai mara in Kenya and Serengeti in Tazania. They are well known as Maasai group who hunt and gathers. they do not practice cattle pastrolism. 
 The Dorobo leaves like other maasai in a homestead know as `Manyatta`.All members of the family particularly sons and their wives and child leave in same compound where their father leaves. the father is the head of the homestead ~or boma~. the father and his sons and grandsons their work is to go hunt and gather in the bush. While women they stay at home to take care of the `boma` for example reparing the manyattas and taking care of the children. An example of manyatta see below image. 
